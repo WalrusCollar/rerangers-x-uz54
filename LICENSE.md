@@ -1,4 +1,4 @@
-
+elite re:rangers x Scripts offers the most advanced re:rangers x Script, with infinite resources and invisibility. Perfect for dominating any match.
 
 
 
